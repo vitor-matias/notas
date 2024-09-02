@@ -27,7 +27,7 @@ Em vez de adorarem os deuses, começaram a adorar o Deus Supremo.
         - Virtudes que podemos aprender.
 
 1. Parece que Deus pede a Abraão o absurdo (Gn 22, 1-9):
-   - Este relato não deve perturbar-nos. não nos devemos fixar nas primeiras palavras, mas nas últimas.
+   - Este relato não deve perturbar-nos. Não nos devemos fixar nas primeiras palavras, mas nas últimas.
    - Será que Deus tentou Abraão para sacrificar o seu filho a Deus?
     - Devemos ter presente que os antigos, em Canaã, ofereciam humanos aos deuses para os agradar. 
     - Quando os israelitas invadiram Canaã, em contacto com os pagãos, caíram na tentação de os imitar nos ritos macabros e sanguinários.
